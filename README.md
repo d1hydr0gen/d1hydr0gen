@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @d1hydr0gen.
+- 👀 I’m web-developer/designer.
+- 📫 Reach me on Discord! @d1hyde0gen <-my disc
